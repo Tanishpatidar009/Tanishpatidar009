@@ -1,4 +1,4 @@
-# Hi there 👋, I'm [Your Name]
+# Hi there 👋, I'm Tanish Patidar
 
 🚀 Software Developer | 💡 Problem Solver | 🌱 Continuous Learner  
 
